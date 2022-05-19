@@ -1,3 +1,3 @@
-20223155 hyeongmin
+20223155 hyeongmin choi
 
 kookmin univ. sw
